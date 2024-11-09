@@ -1,1 +1,1 @@
-We so sorry! This README.md has Deteted!
+We so sorry! This README.md has Deleted!
